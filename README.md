@@ -4,6 +4,8 @@ Carl Johnson Remastered: https://www.mixmods.com.br/2018/06/carl-johnson-remaste
 
 Cutscene Characters Remastered: https://www.mixmods.com.br/2020/02/cutscene-characters-remastered-personagens-em-hd/
 
+Vados Peds Pack: https://www.mixmods.com.br/2020/09/vados-peds-pack/
+
 Improved Lamps: https://www.mixmods.com.br/2021/09/improved-lamps-v0-8-postes-remasterizados-em-hd/
 
 GTA V Del Perro Pier: https://www.gtainside.com/en/sanandreas/mods/106423-gta-v-del-perro-pier-v2
