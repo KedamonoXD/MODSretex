@@ -6,7 +6,7 @@ Cutscene Characters Remastered: https://www.mixmods.com.br/2020/02/cutscene-char
 
 Improved Lamps: https://www.mixmods.com.br/2021/09/improved-lamps-v0-8-postes-remasterizados-em-hd/
 
-https://www.gtainside.com/en/sanandreas/mods/106423-gta-v-del-perro-pier-v2
+GTA V Del Perro Pier: https://www.gtainside.com/en/sanandreas/mods/106423-gta-v-del-perro-pier-v2
 
 https://www.gtainside.com/en/sanandreas/mods/178378-v-residence-retextured/
 
