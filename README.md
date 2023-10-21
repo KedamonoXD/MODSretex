@@ -8,10 +8,10 @@ Improved Lamps: https://www.mixmods.com.br/2021/09/improved-lamps-v0-8-postes-re
 
 GTA V Del Perro Pier: https://www.gtainside.com/en/sanandreas/mods/106423-gta-v-del-perro-pier-v2
 
-https://www.gtainside.com/en/sanandreas/mods/178378-v-residence-retextured/
+V Residence Retextured: https://www.gtainside.com/en/sanandreas/mods/178378-v-residence-retextured/
 
-https://www.gtainside.com/en/sanandreas/mods/176827-v-grove-street-retextured/
+V Grove Street Retextured: https://www.gtainside.com/en/sanandreas/mods/176827-v-grove-street-retextured/
 
-https://www.gtainside.com/en/sanandreas/mods/178745-24-7-ltd-stores-from-gta-v/
+24/7 LTD Stores From GTA V: https://www.gtainside.com/en/sanandreas/mods/178745-24-7-ltd-stores-from-gta-v/
 
 https://www.mixmods.com.br/2016/08/no-100-advantages-remover-beneficios-do-100/
