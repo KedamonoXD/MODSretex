@@ -14,4 +14,4 @@ V Grove Street Retextured: https://www.gtainside.com/en/sanandreas/mods/176827-v
 
 24/7 LTD Stores From GTA V: https://www.gtainside.com/en/sanandreas/mods/178745-24-7-ltd-stores-from-gta-v/
 
-https://www.mixmods.com.br/2016/08/no-100-advantages-remover-beneficios-do-100/
+Sin ventajas del 100 %: https://www.mixmods.com.br/2016/08/no-100-advantages-remover-beneficios-do-100/
